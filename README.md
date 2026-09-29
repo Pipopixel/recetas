@@ -1,1 +1,1 @@
-# recetas
+# locro argentino
